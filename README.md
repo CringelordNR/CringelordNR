@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @CringelordNR
+- 👀 I’m interested in ...
+Mostly Friday night funkin and other rythem games
+- 🌱 I’m currently learning ...
+Javascript lol
+- 📫 How to reach me ...
+daxranken@gmail.com only for importent things
+
+Poggers im a epic gamer
